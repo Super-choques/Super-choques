@@ -2,7 +2,7 @@
 
 Eu me chamo Joáo Rafael
 
-Estou estudando através da Alura.
+Estou estudando através da [alura](https://www.alura.com.br)
 
 Estou me desevolvendo na linguagem javaScript 
 
