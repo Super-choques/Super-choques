@@ -2,7 +2,7 @@
 - 👀 I’m interested in aprender mais sobre a plataforma
 - 🌱 I’m currently learning o basico sobre programar
 - 💞️ I’m looking to collaborate on criacoes
-- 📫 How to reach me 11 94334-2635
+- 📫 How to reach me 0000109559252XSP@al.educacao.sp.gov.br
 - 😄 Pronouns: ele dele
 - ⚡ Fun fact: proativo
 
